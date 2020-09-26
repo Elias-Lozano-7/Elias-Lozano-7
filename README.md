@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there I am Eleazar, but some people call me "Elias" most of the time. I hope you’re doing well. . 👋
 
 <!--
 **Elias-Lozano-7/Elias-Lozano-7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
