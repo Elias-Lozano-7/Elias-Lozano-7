@@ -1,4 +1,4 @@
-### Hi there. I hope you’re doing well. . 👋
+### Hi there :smiley::bulb: . I hope you’re doing well. . 👋:star:
 
 <!--
 **Elias-Lozano-7/Elias-Lozano-7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
